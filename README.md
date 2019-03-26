@@ -1,1 +1,1 @@
-# doitsu-okinawa-kenjin-kai.github.to
+# ドイツ沖縄県人会
