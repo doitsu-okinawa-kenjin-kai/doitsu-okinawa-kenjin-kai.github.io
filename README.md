@@ -1,0 +1,1 @@
+# doitsu-okinawa-kenjin-kai.github.to
